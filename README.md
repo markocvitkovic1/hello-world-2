@@ -1,2 +1,2 @@
 # About Me
-my name is liltrapman and im a skank
+i go to school at crc sydenham and study applied computing
