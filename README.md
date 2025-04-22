@@ -1,2 +1,2 @@
 # About Me
-I am a student at CRC Sydenham. I study Applied Computing at CRC Sydenham.
+my name is liltrapman and im a skank
